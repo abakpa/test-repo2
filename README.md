@@ -1,3 +1,3 @@
 # TRUTH
 
-Na God hand i dey
+Na God hand i dey!
